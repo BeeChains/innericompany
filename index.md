@@ -1,4 +1,4 @@
-## Inner I Company | a Handshake blockchain top level domain
+## Inner I Company | Handshake(HNS) is the biggest thing since Bitcoin. Own web 3, we "Shape Reality" by establishing the "I" as the center of gravity. Built on a Handshake(HNS) blockchain root level domain directing all to Look Within oneself to the Source, the root of perception. Handshake helps us resolve self-sovereign identity by allowing true ownership of authentic web space vs. renting domains on the internet.
 
 | [SERVE THE LIGHT](http://workinthedark.servethelight.hns.to/) | [Contact](mailto:innerinetcompany@gmail.com) | [IINC](http://dlink.innerinetcompany.hns.to/) |
 

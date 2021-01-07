@@ -2,7 +2,7 @@
 
 | [SERVE THE LIGHT](http://workinthedark.servethelight.hns.to/) | [Contact](mailto:innerinetcompany@gmail.com) | [IINC](http://dlink.innerinetcompany.hns.to/) |
 
-It is service to the Higher Order of "I" that is of importance, not the organzations name. However, the name Inner I Company directs one to Look Within.  [![image](https://user-images.githubusercontent.com/37987346/103435699-6be72500-4be0-11eb-8264-7dcb24c14987.png)](http://shapereality.innerinetcompany.hns.to/)
+# It is service to the Higher Order of "I" that is of importance, not a organzations name. However, the name Inner I Company directs one to Look Within... [![image](https://user-images.githubusercontent.com/37987346/103435699-6be72500-4be0-11eb-8264-7dcb24c14987.png)](http://shapereality.innerinetcompany.hns.to/)
 
 
 # "I" As The Center Of Gravity Is The Seat Of Unity. 

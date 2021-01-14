@@ -8,4 +8,6 @@
 # "I" As The Center Of Gravity Is The Seat Of Unity. 
  # [Own The Web 3](http://official.owntheweb3.hns.to/) we Consciously CHOOSE to Bend and [SHAPE Reality](http://innerinetcompany.shapereality.hns.to/) while customizing [The Root Zone](http://therootzone.hns.to/) File of the Internet with our [HNS-DOMAINS](http://home.hns-domains.hns.to/).
 
+# The "I" of All-Conquering Spirit, the Omniscient, Omnipotent and Omnipresent Spark Within us is a drop of burning desire, rippling into a wave as The Great Awakening of the individual soul. Awaken, and The Word becomes The Flame set a blaze with self-expression of The Holy Spirit.
+
 # What is [Handshake.org](https://handshake.org/)? 

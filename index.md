@@ -10,4 +10,6 @@
 
 # The "I" of All-Conquering Spirit, the Omniscient, Omnipotent and Omnipresent Spark Within us is a drop of burning desire, rippling into a wave as The Great Awakening of the individual soul. Choose To BE AWAKE! NOW, presence a blaze, the All-Consuming Flame is seen as self-expression flowing from The Holy Spirit.
 
+# [34 The light of the body is the eye: therefore when thine eye is single, thy whole body also is full of light; but when thine eye is evil, thy body also is full of darkness](https://www.kingjamesbibleonline.org/Luke-11-34/)
+
 # What is [Handshake.org](https://handshake.org/)? 

@@ -6,9 +6,12 @@
 
 
 # "I" As The Center Of Gravity Is The Seat Of Unity, At The Center One Can See The Infinite.
- # [Own The Web 3](http://official.owntheweb3.hns.to/) we Consciously CHOOSE to Bend and [SHAPE Reality](http://innerinetcompany.shapereality.hns.to/) while customizing [The Root Zone](http://therootzone.hns.to/) File of the Internet with our [HNS-DOMAINS](http://home.hns-domains.hns.to/).
+# [Own The Web 3](http://official.owntheweb3.hns.to/) we Consciously CHOOSE to Bend and [SHAPE Reality](http://innerinetcompany.shapereality.hns.to/) while customizing [The Root Zone](http://therootzone.hns.to/) File of the Internet with our [HNS-DOMAINS](http://home.hns-domains.hns.to/).
 
 # The "I" of All-Conquering Spirit, the Omniscient, Omnipotent and Omnipresent Spark Within us is a drop of burning desire, rippling into a wave as The Great Awakening of the individual soul. Choose To BE AWAKE! NOW, presence a blaze, the All-Consuming Flame is seen as self-expression flowing from The Holy Spirit.
+
+# [6 Do you not know that you yourselves are God’s temple, and that God’s Spirit dwells in you?](https://biblehub.com/1_corinthians/3-16.htm)
+
 
 # [34 The light of the body is the eye: therefore when thine eye is single, thy whole body also is full of light; but when thine eye is evil, thy body also is full of darkness](https://www.kingjamesbibleonline.org/Luke-11-34/)
 

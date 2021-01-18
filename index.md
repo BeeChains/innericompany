@@ -1,4 +1,4 @@
-## Inner I Company | Be still, sense the presence of "I," within. Handshake(HNS) is the biggest thing since Bitcoin, raising the energy of the internet backbone. Own the web 3, we "Shape Reality" by establishing the "I" as the center of gravity. We are changing the world through the unchanging "I." Being built on a Handshake(HNS) blockchain root level domain directing all to Look Within oneself to the Source, the root level of consciousness. Handshake helps us resolve self-sovereign identity by allowing true ownership of authentic web space vs. renting domains on the internet.
+## Inner I Company | Be still, sense the presence of "I," within. This is a Handshake(HNS). The biggest thing since Bitcoin, raising the energy of the internet backbone. Own the web 3, we "Shape Reality" by establishing the "I" as the center of gravity. We are changing the world through the unchanging "I." Being built on a Handshake(HNS) blockchain root level domain directing all to Look Within oneself to the Source, the root level of consciousness. Handshake helps us resolve self-sovereign identity by allowing true ownership of authentic web space vs. renting domains on the internet.
 
 | [SERVE THE LIGHT](http://workinthedark.servethelight.hns.to/) | [Contact](mailto:innerinetcompany@gmail.com) | [IINC](http://dlink.innerinetcompany.hns.to/) |
 
@@ -8,6 +8,8 @@
 # "I" As The Center Of Gravity Is The Seat Of Unity, At The Center One Can See The Infinite.
 # [Own The Web 3](http://official.owntheweb3.hns.to/) we Consciously CHOOSE to Bend and [SHAPE Reality](http://innerinetcompany.shapereality.hns.to/) while customizing [The Root Zone](http://therootzone.hns.to/) File of the Internet with our [HNS-DOMAINS](http://home.hns-domains.hns.to/).
 
+- From the outside looking in all a poor man sees are the riches of the kingdom but from the inside looking out all that one can see is the riches of HIS KingdOM.
+
 # There is a "I" inside of us that is expressed through our true BEING, as Divine and everthing good or Holy, but then there is the ego of 10,000 evil "I's". And every moment we make a choice TO Choose "I."  What "I" are we choosing to align with is the question? Follow the one within your Heart. The "I" of All-Conquering Spirit, the Omniscient, Omnipotent and Omnipresent Spark Within us is a drop of burning desire, rippling into a wave as The Great Awakening of the individual soul. Choose To BE AWAKE! NOW, presence a blaze, the All-Consuming Flame is seen as self-expression flowing from The Holy Spirit.
 
 # [6 Do you not know that you yourselves are God’s temple, and that God’s Spirit dwells in you?](https://biblehub.com/1_corinthians/3-16.htm)
@@ -16,4 +18,4 @@
 
 # ["Everything is part of one, endless, vast, immeasurable Self, in which at the highest level there is One only, without another. It is consciousness without distinction, awareness without duality, and absorption without the feeling of separation. Everything is Self, the one, indistinguishable "I-am-ness". In that ocean of supreme consciousness, there is no "me" or "mine" either, because egoism and possessiveness, which are part of the egoistic individuality, are completely absent there."](https://www.hinduwebsite.com/who_is_brahman.asp)
 
-# What is [Handshake.org](https://handshake.org/)? 
+# What is [Handshake.org](https://handshake.org/)? This is a top level Handshake(HNS) domian.

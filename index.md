@@ -2,6 +2,7 @@
 
 | [SERVE THE LIGHT](http://workinthedark.servethelight.hns.to/) | [Contact](mailto:innerinetcompany@gmail.com) | [IINC](http://dlink.innerinetcompany.hns.to/) |
 
+ # "But seek first the kingdom of God and his righteousness, and all these things will be added to you." [Matthew 6:33](https://biblehub.com/matthew/6-33.htm)
 # The will to choose the Higher Order at the root of "I", is The Work and Name of Inner I Company! [![image](https://user-images.githubusercontent.com/37987346/103435699-6be72500-4be0-11eb-8264-7dcb24c14987.png)](http://shapereality.innerinetcompany.hns.to/)
 
 

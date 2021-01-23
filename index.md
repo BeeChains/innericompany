@@ -19,7 +19,7 @@
 
 # ["Everything is part of one, endless, vast, immeasurable Self, in which at the highest level there is One only, without another. It is consciousness without distinction, awareness without duality, and absorption without the feeling of separation. Everything is Self, the one, indistinguishable "I-am-ness". In that ocean of supreme consciousness, there is no "me" or "mine" either, because egoism and possessiveness, which are part of the egoistic individuality, are completely absent there."](https://www.hinduwebsite.com/who_is_brahman.asp)
 
-# What is [Handshake.org](https://handshake.org/)? This is a top level Handshake(HNS) domain.
+# What is [Handshake.org](https://handshake.org/)? You are Now on a Top Level Handshake(HNS) Domain.
 
 The Calling 
 <iframe width="946" height="360" src="https://www.youtube.com/embed/hSQFFRGKhbI?list=PLNYyASPIg_4XLTnwZFb-iSf2_E8sNFcQZ" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>

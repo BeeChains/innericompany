@@ -4,7 +4,7 @@
 
  # "But seek first the kingdom of God and his righteousness, and all these things will be added to you." [Matthew 6:33](https://biblehub.com/matthew/6-33.htm)
 # The will to choose the Higher Order at the root of "I", is The Work and Name of Inner I Company! [![image](https://user-images.githubusercontent.com/37987346/103435699-6be72500-4be0-11eb-8264-7dcb24c14987.png)](http://shapereality.innerinetcompany.hns.to/)
-
+# "You are a king, then!" said Pilate. Jesus answered, "You say that I am a king. In fact, the reason I was born and came into the world is to testify to the truth. Everyone on the side of truth listens to me."[John 18:37](https://biblehub.com/john/18-37.htm/)
 
 # "I" As The Center Of Gravity Is The Seat Of Unity, At The Center One Can See The Infinite. Now is the time to choose "I" of the Kingdom Within as first response instead of as a last resort. True success can be measured by the level of priority given to The Kingdom.  
 # [Own The Web 3](http://official.owntheweb3.hns.to/) we Consciously manifest Light by choosing to Bend and [SHAPE Reality](http://innerinetcompany.shapereality.hns.to/) while customizing [The Root Zone](http://therootzone.hns.to/) File of the Internet with our [HNS-DOMAINS](http://home.hns-domains.hns.to/).

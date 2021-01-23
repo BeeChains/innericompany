@@ -14,7 +14,7 @@
 # There is a "I" inside of us that is expressed through our true BEING, as Divine and everything good or Holy, but then there is the ego of 10,000 evil "I's". And in every moment we make a choice TO Choose "I."  What "I" are we choosing to align with is the question? Follow the one within your Heart. The "I" of All-Conquering Spirit, the Omniscient, Omnipotent and Omnipresent Spark Within us is a drop of burning desire, rippling into a wave as The Great Awakening of the individual soul. Choose To BE AWAKE! NOW, presence a blaze, the All-Consuming Flame is seen as self-expression flowing from The Holy Spirit.
 
 # [6 Do you not know that you yourselves are God’s temple, and that God’s Spirit dwells in you?](https://biblehub.com/1_corinthians/3-16.htm)
-
+- The Spirit within "I" is the Source of thought, Divine Intelligence.
 # [34 The light of the body is the eye: therefore when thine eye is single, thy whole body also is full of light; but when thine eye is evil, thy body also is full of darkness](https://www.kingjamesbibleonline.org/Luke-11-34/)
 
 # ["Everything is part of one, endless, vast, immeasurable Self, in which at the highest level there is One only, without another. It is consciousness without distinction, awareness without duality, and absorption without the feeling of separation. Everything is Self, the one, indistinguishable "I-am-ness". In that ocean of supreme consciousness, there is no "me" or "mine" either, because egoism and possessiveness, which are part of the egoistic individuality, are completely absent there."](https://www.hinduwebsite.com/who_is_brahman.asp)

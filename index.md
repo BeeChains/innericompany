@@ -26,3 +26,5 @@
 The Calling 
 <iframe width="946" height="360" src="https://www.youtube.com/embed/hSQFFRGKhbI?list=PLNYyASPIg_4XLTnwZFb-iSf2_E8sNFcQZ" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
+# Channel within [#innerinet&company](https://webchat.hybridirc.com/#innerinet&company)
+<iframe src="https://kiwiirc.hybridirc.com/#innerinet&company" allow="microphone; camera; display-capture; fullscreen" style="border:0; width:100%; height:500px;"></iframe>

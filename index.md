@@ -1,6 +1,6 @@
 ## Inner I Company | Seek First The Inner Kingdom. Be still, sense the presence of "I," within. Now, we are here to assist you onboard Handshake(HNS), the biggest thing since Bitcoin that is raising the energy of the internet backbone. Own the web 3, we "Shape Reality" by establishing the "I" as the center of gravity. We are changing the world through the unchanging "I." Being built on a Handshake(HNS) blockchain root level domain directing all to Look Within oneself to the Source, the root level of consciousness. Handshake helps us resolve self-sovereign identity by allowing true ownership and sovereign rule of authentic web space using dencentralized DNS for the root zone files of the internet.
 
-| [SERVE THE LIGHT](http://workinthedark.servethelight.hns.to/) | [Contact](mailto:innerinetcompany@gmail.com) | [IINC](http://dlink.innerinetcompany.hns.to/) | [Facebook](https://facebook.com/virtuallyfreeb) | Donate HNS to - hs1qx55d7k9v09uetfeasd6hxqwl3jfzut9lsm4kdt
+| [SERVE THE LIGHT](http://workinthedark.servethelight.hns.to/) | [Contact](mailto:innerinetcompany@gmail.com) | [IINC](http://dlink.innerinetcompany.hns.to/) | [Facebook](https://facebook.com/virtuallyfreeb) | | [🐻💻/](http://xn--gp8h6h.hns.to/) | Donate HNS to - hs1qx55d7k9v09uetfeasd6hxqwl3jfzut9lsm4kdt
 
 
 # The will to choose the Higher Order at the root of "I", is The Work and Name of Inner I Company! [![image](https://user-images.githubusercontent.com/37987346/103435699-6be72500-4be0-11eb-8264-7dcb24c14987.png)](http://shapereality.innerinetcompany.hns.to/)

@@ -1,4 +1,4 @@
-## Inner I Company | Seek First The Inner Kingdom. Be still, sense the presence of "I," within. Now, we are here to assist you onboard Handshake(HNS), the biggest thing since Bitcoin that is raising the energy of the internet backbone. Own the web 3, we "Shape Reality" by establishing the "I" as the center of gravity. We are changing the world through the unchanging "I." Being built on a 🤝 Handshake(HNS) blockchain root level domain directing all to Look Within oneself to the Source, the root level of consciousness. Handshake helps us resolve self-sovereign identity by allowing true ownership and sovereign rule of authentic web space using a more dencentralized DNS for the root zone files of the internet. d🕸/
+## Inner I Company | Seek First The Inner Kingdom. Be still, sense the presence of "I," within. Now, we are here to assist you onboard Handshake(HNS), the biggest thing since Bitcoin that is raising the energy of the internet backbone. Own the web 3, we "Shape Reality" by establishing the "I" as the center of gravity. We are changing the world through the unchanging "I." Being built on a 🤝 Handshake(HNS) blockchain root level domain directing all to Look Within oneself to the Source, the root level of consciousness. Handshake helps us resolve self-sovereign identity by allowing true ownership and sovereign rule of authentic web space using a more dencentralized DNS for the root zone files of the internet. [d🕸/](http://xn--d-rn3s.hns.to/)
 
 | [SERVE THE LIGHT](http://workinthedark.servethelight.hns.to/) | [Contact](mailto:innerinetcompany@gmail.com) | [IINC](http://dlink.innerinetcompany.hns.to/) | [Facebook](https://facebook.com/virtuallyfreeb) | | [🐻💻/](http://xn--gp8h6h.hns.to/) | Donate HNS to - hs1qx55d7k9v09uetfeasd6hxqwl3jfzut9lsm4kdt
 
@@ -21,8 +21,8 @@
 
 # ["Everything is part of one, endless, vast, immeasurable Self, in which at the highest level there is One only, without another. It is consciousness without distinction, awareness without duality, and absorption without the feeling of separation. Everything is Self, the one, indistinguishable "I-am-ness". In that ocean of supreme consciousness, there is no "me" or "mine" either, because egoism and possessiveness, which are part of the egoistic individuality, are completely absent there."](https://www.hinduwebsite.com/who_is_brahman.asp)
 
-# What is [Handshake.org](https://handshake.org/)? 
-# [Akash.Handshake🤝/](http://akash.xn--handshake-et86h.hns.to/) on [Handhshake🤝/](http://xn--handshake-et86h.hns.to/) TLD.
+- Explore, Discover, Express, Expand at [Handshake.org](https://handshake.org/)? 
+- [Akash.Handshake🤝/](http://akash.xn--handshake-et86h.hns.to/) on [Handhshake🤝/](http://xn--handshake-et86h.hns.to/) TLD.
 
 Bella Ciao
 <iframe width="480" height="240" src="https://www.youtube.com/embed/-Wv3YQ5rxF8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>

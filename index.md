@@ -22,7 +22,7 @@
 # ["Everything is part of one, endless, vast, immeasurable Self, in which at the highest level there is One only, without another. It is consciousness without distinction, awareness without duality, and absorption without the feeling of separation. Everything is Self, the one, indistinguishable "I-am-ness". In that ocean of supreme consciousness, there is no "me" or "mine" either, because egoism and possessiveness, which are part of the egoistic individuality, are completely absent there."](https://www.hinduwebsite.com/who_is_brahman.asp)
 
 # What is [Handshake.org](https://handshake.org/)? 
-# # [Akash.Handshake🤝/](http://akash.xn--handshake-et86h.hns.to/) on [Handhshake🤝/](http://xn--handshake-et86h.hns.to/) TLD.
+# [Akash.Handshake🤝/](http://akash.xn--handshake-et86h.hns.to/) on [Handhshake🤝/](http://xn--handshake-et86h.hns.to/) TLD.
 
 Bella Ciao
 <iframe width="480" height="240" src="https://www.youtube.com/embed/-Wv3YQ5rxF8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>

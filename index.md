@@ -3,7 +3,7 @@
 | [SERVE THE LIGHT](http://workinthedark.servethelight.hns.to/) | [Contact](mailto:innerinetcompany@gmail.com) | [IINC](http://dlink.innerinetcompany.hns.to/) | [Facebook](https://facebook.com/virtuallyfreeb) | | [🐻💻/](http://xn--gp8h6h.hns.to/) | Donate HNS to - hs1qx55d7k9v09uetfeasd6hxqwl3jfzut9lsm4kdt
 
 
-# The will to choose the Higher Order at the root of "I", is The Work and Name of Inner I Company! [![image](https://user-images.githubusercontent.com/37987346/103435699-6be72500-4be0-11eb-8264-7dcb24c14987.png)](http://shapereality.innerinetcompany.hns.to/)
+# The will to choose the Higher Order at the root of "I", is The Work and Mission of Inner I Company! [![image](https://user-images.githubusercontent.com/37987346/103435699-6be72500-4be0-11eb-8264-7dcb24c14987.png)](http://shapereality.innerinetcompany.hns.to/)
 # - “The kingdom of heaven is near” [Matthew 10:7](https://biblehub.com/matthew/10-7.htm). 
  # - "But seek first the kingdom of God and his righteousness, and all these things will be added to you." [Matthew 6:33](https://biblehub.com/matthew/6-33.htm)
 # - "You are a king, then!" said Pilate. Jesus answered, "You say that I am a king. In fact, the reason I was born and came into the world is to testify to the truth. Everyone on the side of truth listens to me."[John 18:37](https://biblehub.com/john/18-37.htm/)
@@ -21,7 +21,12 @@
 
 # ["Everything is part of one, endless, vast, immeasurable Self, in which at the highest level there is One only, without another. It is consciousness without distinction, awareness without duality, and absorption without the feeling of separation. Everything is Self, the one, indistinguishable "I-am-ness". In that ocean of supreme consciousness, there is no "me" or "mine" either, because egoism and possessiveness, which are part of the egoistic individuality, are completely absent there."](https://www.hinduwebsite.com/who_is_brahman.asp)
 
-# What is [Handshake.org](https://handshake.org/)? You are Now on a Top Level Handshake(HNS) Domain.
+# What is [Handshake.org](https://handshake.org/)? 
+# # [Akash.Handshake🤝/](http://akash.xn--handshake-et86h.hns.to/) on [Handhshake🤝/](http://xn--handshake-et86h.hns.to/) TLD.
+
+Bella Ciao
+<iframe width="480" height="240" src="https://www.youtube.com/embed/-Wv3YQ5rxF8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 
 The Calling 
 <iframe width="946" height="360" src="https://www.youtube.com/embed/hSQFFRGKhbI?list=PLNYyASPIg_4XLTnwZFb-iSf2_E8sNFcQZ" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>

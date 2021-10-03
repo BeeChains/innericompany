@@ -3,7 +3,10 @@
 | [SERVE THE LIGHT](http://workinthedark.servethelight.hns.to/) | [Contact](mailto:innerinetcompany@gmail.com) | [IINC](http://dlink.innerinetcompany.hns.to/) | [Facebook](https://facebook.com/innerinetcompany) | | [🐻💻/](http://xn--gp8h6h.hns.to/) | Donate HNS to - hs1qx55d7k9v09uetfeasd6hxqwl3jfzut9lsm4kdt
 
 
-# The will to choose the Higher Order at the root of "I", is The Work and Mission of Inner I Company! [![image](https://user-images.githubusercontent.com/37987346/103435699-6be72500-4be0-11eb-8264-7dcb24c14987.png)](http://shapereality.innerinetcompany.hns.to/)
+# The will to choose the Higher Order at the root of "I", is The Work and Mission of Inner I Company! 
+![freeLogo](https://user-images.githubusercontent.com/37987346/135734914-58d468ef-419d-46ae-b695-9b77b286272a.jpeg) 
+<a href=null>Logo source Logodesign.net</a>
+
 # - “The kingdom of heaven is near” [Matthew 10:7](https://biblehub.com/matthew/10-7.htm). 
  # - "But seek first the kingdom of God and his righteousness, and all these things will be added to you." [Matthew 6:33](https://biblehub.com/matthew/6-33.htm)
 # - "You are a king, then!" said Pilate. Jesus answered, "You say that I am a king. In fact, the reason I was born and came into the world is to testify to the truth. Everyone on the side of truth listens to me."[John 18:37](https://biblehub.com/john/18-37.htm/)
@@ -33,3 +36,4 @@ The Calling
 
 # Channel within [#innerinet&company](https://webchat.hybridirc.com/#innerinet&company)
 <iframe src="https://kiwiirc.hybridirc.com/#innerinet&company" allow="microphone; camera; display-capture; fullscreen" style="border:0; width:100%; height:500px;"></iframe>
+[![image](https://user-images.githubusercontent.com/37987346/103435699-6be72500-4be0-11eb-8264-7dcb24c14987.png)](http://shapereality.innerinetcompany.hns.to/)
